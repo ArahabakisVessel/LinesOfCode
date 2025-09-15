@@ -11,6 +11,8 @@
 
 ⁠˖⁠ ꒰ Little age(s) ⁠꒱ 4 - 10ish 𐂯 —  ๋࣭  ࣪ ˖✩
 
+⤷ ゛ I dont age regress often, I sometimes pet regress and no I dont have a caregiver ˎˊ˗
+
 . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
 
 ──★ 𝙇𝙞𝙨𝙩𝙚𝙣𝙞𝙣𝙜 𝙩𝙤... જ⁀➴ ̟ !! 
@@ -36,6 +38,8 @@
 𖦹 ׂ 𓈒 Im quite shy and wont likely talk much but PLEASE PLEASE PLEASE CUDDLE ME!! I LOVE CUDS!! (つ≧▽≦)つ If you have C+H in your name **I WILL** approach especially if it says encouraged!!
 
 𖦹 ׂ 𓈒 DO W2I!! Im usually offtab watching something, drawing, playing roblox, etc (╥ ω ╥)
+
+𖦹 ׂ 𓈒 PLEASE READ MY PRONOUNS.CC FOR PET NAMES TO CALL ME!!
 
 ᥫ᭡ 𝐭𝐡𝐚𝐧𝐤𝐬 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠,
 𝐡𝐚𝐯𝐞 𝐚 𝐠𝐫𝐞𝐚𝐭 𝐝𝐚𝐲!
