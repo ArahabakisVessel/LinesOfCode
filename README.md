@@ -33,7 +33,7 @@
 
 𖦹 ׂ 𓈒 Only use the name Nebby when im regressed. The name is a comfort to me and hearing my other online names when regressed is a mehh
 
-𖦹 ׂ 𓈒 I __typically__ use child characters/child ver of characters when regressed, but not always!! I make sure I write it in name/pony when I am (Though if i got shy to write it you can tell by the skin having a green small ribbon on tail as well as this github is linked to the pony) While my c'links all have a small blue ribbon on the tail!!
+𖦹 ׂ 𓈒 I __typically__ use child characters/child ver of characters when regressed, but not always!! I make sure I write it in name/pony when I am (Though if i got shy to write it you can tell by the skin having a red small ribbon on tail as well as this github is linked to the pony, While my c'links all have a small blue ribbon on the tail!!)
 
 𖦹 ׂ 𓈒 Im quite shy and wont likely talk much but PLEASE PLEASE PLEASE CUDDLE ME!! I LOVE CUDS!! (つ≧▽≦)つ If you have C+H in your name **I WILL** approach especially if it says encouraged!!
 
