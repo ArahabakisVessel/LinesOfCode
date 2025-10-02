@@ -7,13 +7,11 @@
 
 ˗ˏˋ 𝐀 𝐁 𝐎 𝐔 𝐓  𝐌 𝐄 ˎˊ˗
 
-౿ ݁  .  *Nebby / Current C'link* !!  • [He/They/She 𓏵] ︵   ｡ Ꮺ ˚
+⤷ ゛Hello!! I mostly go by Neeo or whatever skin is linked to this account ︵   ｡ Ꮺ ˚
+
+⤷ ゛I dont age regress often, I sometimes pet regress too and no I dont have a caregiver (Unsure if i do want one tbh) ˎˊ˗
 
 ⁠˖⁠ ꒰ Little age(s) ⁠꒱ 4 - 10ish 𐂯 —  ๋࣭  ࣪ ˖✩
-
-⤷ ゛ If you dont know who my c'link (skin) is you can just call me Neeo, but if you do know its better to call me by that character's name. And if im regressed Nebby is preferred, thanks
-
-⤷ ゛ I dont age regress often, I sometimes pet regress and no I dont have a caregiver (Unsure if i do want one tbh) ˎˊ˗
 
 . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
 
@@ -30,23 +28,25 @@
 
 . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
 
-˗ˏˋ 【﻿Ｃ＇ＬＩＮＫ ＩＮＦＯ】 ˎˊ˗
+˗ˏˋ 【﻿Ｃ＇ＬＩＮＫ / ＦＩＣＴＫＩＮ ＩＮＦＯ】 ˎˊ˗
 
-✦. ⊹ My c'links all have a small blue ribbon on the tail!! ( ˶ˆᗜˆ˵ )
+✦. ⊹ Confirmed C'linker and questioning possibly being a Fictionkin thats why its labeled as both
+
+✦. ⊹ I have multiple C'links and a few possible Fictkins
+
+✦. ⊹ They all have a small blue ribbon on the tail!! ( ˶ˆᗜˆ˵ )
 
 ✦. ⊹ I ***USUALLY*** dont mind doubles, but please do ask regardless ദ്ദി(ᵔᗜᵔ)
-
-✦. ⊹ Also questioning fictionkin...
 
 . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
 
 ˗ˏˋ 【﻿ＲＥＧＲＥＳＳＩＯＮ ＩＮＦＯ】 ˎˊ˗
 
-𖦹 ׂ 𓈒 ***Only*** use the name Nebby when im regressed. The name is a comfort to me and hearing my other online names when regressed is a mehh
+𖦹 ׂ 𓈒 ***Only*** use the name __Nebby__ when im regressed. The name is a comfort to me and hearing my other online names when regressed is a mehh. Unless its my C'link/Fictkin its the only exception but regardless just use Nebby please
 
 𖦹 ׂ 𓈒 I __typically__ use child characters/child ver of characters when regressed, but not always!!
 
-𖦹 ׂ 𓈒 The skin im currently wearing would have a red small ribbon on tail to show whenever im regressed
+𖦹 ׂ 𓈒 The skin im currently wearing would have a red small ribbon on tail to indicate that im currently regressed
 
 𖦹 ׂ 𓈒 Im quite shy, likely wont talk much and/or usually nonverbal
 
