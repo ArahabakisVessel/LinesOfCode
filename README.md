@@ -1,56 +1,39 @@
-#  ☁ ˟𐬿ᣞ∘ ᴛʜɪꜱ ᴜꜱᴇʀ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ  〜⚝〜 ꜱꜰᴡ ɪɴᴛᴇʀᴀᴄᴛɪᴏɴꜱ ᴏɴʟʏ ᴘʟᴇᴀꜱᴇ! ˟𐬿ᣞ∘
-↳ 𝐛𝐞 𝐤𝐢𝐧𝐝! ↲
+☁ ˟𐬿ᣞ∘ 𝙼𝙰𝙸𝙽𝙻𝚈 𝙰 𝙰𝙶𝙴𝚁𝙴 𝙰𝙲𝙲𝙾𝚄𝙽𝚃 !! 〜⚝〜 𝚂𝙵𝚆 𝙸𝙽𝚃𝙴𝚁𝙰𝙲𝚃𝙸𝙾𝙽𝚂 𝙿𝙻𝙴𝙰𝚂𝙴 !!  ˟𐬿ᣞ∘ ☽
 
-ᥫ᭡ 𝐡𝐚𝐭𝐞 = 𝐛𝐥𝐨𝐜𝐤
+↳ 𝐛𝐞 𝐤𝐢𝐧𝐝! ↲ ,, ᥫ᭡ 𝐡𝐚𝐭𝐞 = 𝐛𝐥𝐨𝐜𝐤.
 
-. 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
-
-˗ˏˋ 𝐀 𝐁 𝐎 𝐔 𝐓  𝐌 𝐄 ˎˊ˗
-
-⤷ ゛Hello!! I mostly go by Neeo or whatever skin is linked to this account ︵   ｡ Ꮺ ˚
-
-⤷ ゛I dont age regress often, I sometimes pet regress too and no I dont have a caregiver (Unsure if i do want one tbh) ˎˊ˗
-
-⁠˖⁠ ꒰ Little age(s) ⁠꒱ 4 - 10ish 𐂯 —  ๋࣭  ࣪ ˖✩
-
-. 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
-
-──★ 𝙇𝙞𝙨𝙩𝙚𝙣𝙞𝙣𝙜 𝙩𝙤... જ⁀➴ ̟ !! 
-
-❝ But can I do anything when I'm also drowning? ❞
-*ᴛʜᴇ ᴍɪʟᴋ ᴄᴀʀᴛᴏɴ - ᴍᴀᴅɪʟʏɴ ᴍᴇɪ*
-
-2:11 ━━━━●───── 5:10 
-
-⇆ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿
-
-ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮▮▮▮▮
-
-. 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
-
-˗ˏˋ 【﻿Ｃ＇ＬＩＮＫ / ＦＩＣＴＫＩＮ ＩＮＦＯ】 ˎˊ˗
-
-✦. ⊹ I have multiple C'links, some I relate too while others are just for fun ,, they all have a small blue ribbon on the tail!! ( ˶ˆᗜˆ˵ )
-
-✦. ⊹ Fictkins have a small yellow ribbon on tail as an indicator ദ്ദി(ᵔᗜᵔ)
-
-. 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
+⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰
 
 ˗ˏˋ 【﻿ＲＥＧＲＥＳＳＩＯＮ ＩＮＦＯ】 ˎˊ˗
 
-𖦹 ׂ 𓈒 ***Only*** use the name __Nebby__ when im regressed. The name is a comfort to me and hearing my other online names when regressed is a mehh. Unless its my C'link/Fictkin its the only exception but regardless just use Nebby please
+⤷ ゛ Little age(s) ⁠ ꒰ 4 - 10ish  𐂯  ꒱
 
-𖦹 ׂ 𓈒 I __typically__ use child characters/child ver of characters when regressed, but not always
+⤷ ゛I don't age regress often, I sometimes pet regress and no I dont have a caregiver
 
-𖦹 ׂ 𓈒 The skin im currently wearing would have a red small ribbon on tail to indicate that im currently regressed
+⤷ ゛ Only use the name Nebby when I'm regressed. The name is a comfort to me and hearing my other online names when regressed is a mehh ,, My C'links get a semi pass but regardless just use Nebby please
 
-𖦹 ׂ 𓈒 Im quite shy, likely wont talk much and/or usually nonverbal
+⤷ ゛ I typically use child characters/child ver of characters when regressed, but not always
 
-𖦹 ׂ 𓈒 PLEASE PLEASE PLEASE CUDDLE ME!! I LOVE CUDS!! (つ≧▽≦)つ If you have C+H in your name **I WILL** approach especially if it says encouraged !!
+⤷ ゛ The skin I'm currently wearing would have a *red small ribbon* on tail to indicate that im currently regressed
 
-𖦹 ׂ 𓈒 DO W2I!! Im usually offtab watching something, drawing, playing roblox, etc when small (╥ ω ╥)
+⤷ ゛ I'm quite shy, likely wont talk much and/or usually nonverbal ,, Also very easily distracted
 
-𖦹 ׂ 𓈒 PLEASE READ MY PRONOUNS.CC FOR PET NAMES TO CALL ME WHENEVER IM REGRESSED !!
+⤷ ゛ PLEASE READ MY PRONOUNS.CC FOR PET NAMES TO CALL ME WHENEVER IM REGRESSED !!
 
-ᥫ᭡ 𝐭𝐡𝐚𝐧𝐤𝐬 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠,
-𝐡𝐚𝐯𝐞 𝐚 𝐠𝐫𝐞𝐚𝐭 𝐝𝐚𝐲!
+⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰
+
+⤷ ;; STATUS !!゛ ˎˊ˗
+
+⸝⸝.ᐟ ✰ Always Semi-AFK and will use 🌙 over 🟢 since I'm usually offtab Watching YT/Tiktok, Drawing, Playing Roblox and whatever else when small (╥ ω ╥)
+
+⸝⸝.ᐟ ✰ ⛔ Upset ,, Company is still very much welcomed but do Interact with care
+
+⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰
+
+˗ˏˋ 【﻿ＴＨＩＮＧＳ ＴＯ ＮＯＴＥ】 ˎˊ˗
+
+𑣲 .ᐟ.ᐟ I have multiple Copinglinks that won't be listed here for reasons ,, They all have a *small blue or yellow ribbon* on the tail!! ദ്ദി(ᵔᗜᵔ)
+
+𑣲 .ᐟ.ᐟ PLEASE PLEASE PLEASE CUDDLE ME!! I LOVE CUDS!! (つ≧▽≦)つ ,, If you have C+H in your name **I WILL** approach especially if it says encouraged !! 
+
+ᥫ᭡ **𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐, 𝚑𝚊𝚟𝚎 𝚊 𝚐𝚛𝚎𝚊𝚝 𝚍𝚊𝚢 / 𝚗𝚒𝚐𝚑𝚝 !!**
