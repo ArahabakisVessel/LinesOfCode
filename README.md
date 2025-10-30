@@ -26,7 +26,7 @@
 
 ⸝⸝.ᐟ ✰ Always Semi-AFK and will use 🌙 over 🟢 since I'm usually offtab Watching YT/Tiktok, Drawing, Playing Roblox and whatever else when small (╥ ω ╥)
 
-⸝⸝.ᐟ ✰ ⛔ Upset ,, Company is still very much welcomed but do Interact with care
+⸝⸝.ᐟ ✰ ⛔ Upset ,, Interact with care
 
 ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰
 
