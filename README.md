@@ -6,11 +6,11 @@
 
 ⤷ ;; STATUS !!゛ ˎˊ˗
 
-⸝⸝.ᐟ ✰ 🟢 Active and playing
+⸝⸝.ᐟ ✰ 🟢 Active and Playing
 
-⸝⸝.ᐟ ✰ 🌙 Semi-AFK/Offtab usually Watching YT/Tiktok, Drawing, Playing Roblox and whatever else when small ⸝⸝ Likely will also disconnect alot since I don't pay attention (╥ ω ╥)
+⸝⸝.ᐟ ✰ 🌙 Semi-AFK (╥ ω ╥)
 
-⸝⸝.ᐟ ✰ ⛔ Upset ➜ Interact with CARE (ᵕ—ᴗ—)
+⸝⸝.ᐟ ✰ ⛔ Offtab usually Watching YT/Tiktok, Drawing, Playing Roblox and whatever else (ᵕ—ᴗ—)
 
 ⸝⸝.ᐟ ✰ Middle ground is always 🌙 over 🟢 cuz I forget (ദ്ദി˙ᗜ˙)
 
