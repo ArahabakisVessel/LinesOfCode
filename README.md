@@ -2,15 +2,17 @@
 
 ↳ 𝐛𝐞 𝐤𝐢𝐧𝐝! ↲ ⸝⸝ ᥫ᭡ 𝐡𝐚𝐭𝐞 = 𝐛𝐥𝐨𝐜𝐤. 𝐍𝐨𝐭 𝐤𝐢𝐝𝐝𝐢𝐧𝐠.
 
+ᴛʜɪs ᴀᴄᴄᴏᴜɴᴛ ʙᴇɪɴɢ ʟɪɴᴋᴇᴅ = Rᴇɢʀᴇssᴇᴅ
+
 ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰
 
 ⤷ ;; STATUS !!゛ ˎˊ˗
 
-⸝⸝.ᐟ ✰ 🟢 Active and Playing
+⸝⸝.ᐟ ✰ 🟢 Playing ⸝⸝ Usually semi-AFK
 
-⸝⸝.ᐟ ✰ 🌙 Semi-AFK (╥ ω ╥)
+⸝⸝.ᐟ ✰ 🌙 AFK (╥ ω ╥)
 
-⸝⸝.ᐟ ✰ ⛔ Offtab usually Watching YT/Tiktok, Drawing, Playing Roblox and whatever else (ᵕ—ᴗ—)
+⸝⸝.ᐟ ✰ ⛔ Offtab + Distracted (ᵕ—ᴗ—)
 
 ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰ ⊱ ────── {.⋅ ✯ ⋅.} ────── ⊰
 
@@ -24,9 +26,7 @@
 
 ⤷ ゛ I typically use child characters/child ver of characters when regressed, but not always
 
-⤷ ゛ The skin i'm currently wearing would have a *red small ribbon* on tail as a small indicate that im currently regressed
-
-⤷ ゛ I'm quite shy and don't like to talk in public chats but can be talkative in private chat so w2i is best if you wanna chat to me ⸝⸝ Also very easily distracted..
+⤷ ゛ I'm quite shy and don't like to talk in public chats but can be talkative in private chat so w2i is best if you wanna chat to me
 
 ⤷ ゛ PLEASE PLEASE PLEASE CUDDLE ME!! I LOVE CUDS ➜ CUDDLE COMF!! ⸝⸝ If you have C+H in your name **I WILL** approach especially if it says encouraged .ᐟ.ᐟ (つ≧▽≦)つ
 
